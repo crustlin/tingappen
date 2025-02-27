@@ -1,0 +1,2 @@
+# tingappen
+Tinget was the vikings Congress, so I wanted the fact that I am Norwegian be a part of the name. Also, "appen" is "the app" in Norwegian, Tingappen is a long time dream of a very useful app I wanted to create mostly for myself, but lets see how it develops,
